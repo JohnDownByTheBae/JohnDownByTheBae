@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JohnDownByTheBae
+- 👀 I’m interested in Learning more about spark AR and other XR AR related tech! 
+- 📫 How to reach me fxcence@gmail.com
